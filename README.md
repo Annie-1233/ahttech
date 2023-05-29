@@ -15,4 +15,4 @@ digital performance. As a true technology partner, we
 are committed to investing in your success by
 delivering seamless experiences through technological
 expertise. 
-Explore our [top-notch services]([url](https://www.arrowhitech.com/)) right now!
+Explore our top-notch services right now! https://www.arrowhitech.com/
